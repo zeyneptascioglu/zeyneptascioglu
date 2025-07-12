@@ -22,4 +22,4 @@ I’m an aspiring hardware engineer with hands-on experience in both academic re
 
 ## 📫 Let's Connect
 
-- [LinkedIn](https://www.linkedin.com/in/jasmine-z-t-0226551b7/)
+- [LinkedIn](https://www.linkedin.com/in/jasmine-z-t/)
